@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with great people
 - 💬 Ask me about code, programming
 - 📫 How to reach me: debayatisarkar@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ... she/her
+- ⚡ Fun fact: ... trust people easily
 
